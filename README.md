@@ -1,0 +1,1 @@
+# ys-ishikawa.github.io
